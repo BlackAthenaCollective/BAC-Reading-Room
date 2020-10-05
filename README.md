@@ -1,6 +1,7 @@
 # Black Athena Collective Reading Room
-
+Black Athena Collective Reading Room
 <br />
+
 ![Tent as an Image of the Cosmos](images/Tent_as_an_Image_of_the_Cosmos.jpg)
 <br />
 <br />
