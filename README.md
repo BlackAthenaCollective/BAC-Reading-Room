@@ -7,4 +7,5 @@
 <br />
 The tent and the architectural notion encoded within it resonates with inflections of mobility and affirm uncertainty rather than stability. Nomadic architecture, and the form of the tent in particular, pushes against dominant framings of place - their histories and historical framings - as a spatial proposition.
 <br />
+<br />
 The deployment of the tent structure continues Black Athena Collective's interest in non-western representations of place and forms of architecture. 
